@@ -1,1 +1,1 @@
-# Reposit-rio-Faculdade-1-DIOGO
+# Repositório-Faculdade-1-DIOGO
